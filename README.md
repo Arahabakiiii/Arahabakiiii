@@ -13,6 +13,6 @@ Angeredfish : Me
 
 GoodPuffer : Shelly !! 
 
-J - ambar - D : JADIIIIIIIIII!!!!!!!!!!
+J - ambar - D JADIII
 
 ![](https://64.media.tumblr.com/2ac7a88871a3154f4d9782c5ee789869/32105e9cb3db7225-75/s2048x3072/bd9c2d376c60806d613176d4eef5e85b96d51f82.pnj)
