@@ -5,7 +5,7 @@ Hello, I am Chuuya, a teenager on the internet who probably shouldn't be online 
 I lack awareness or empathy so please be patient with me. (Autistic+Schizobpd).
 <img align="right" img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/104607ff-fffd-4b26-8279-f80712ab0046" />
 
-━━━⊱༒︎ • ༒︎⊰━━━
+
 Chuuya means a lot to me, being one of the only characters I've been able to form an attachment to.. Besides 18zai & Beastzai.
  Please do not be a Chuuya Nakahara pony around me, as I am him irl.
 
