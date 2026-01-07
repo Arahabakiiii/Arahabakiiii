@@ -1,18 +1,17 @@
-![](https://media1.tenor.com/m/fZ0EAmiUd80AAAAd/chuuya-chuya.gif)
+<img width="2048" height="82" alt="image" src="https://github.com/user-attachments/assets/cad2a0cc-ba20-4342-9fed-04d5f0894bdc" />
 
-![](https://64.media.tumblr.com/8c8be68f053e18b5282834e895dee0c2/ac7ca9e806546f3b-a7/s500x750/affa045a101dfb5cce94b3036b4164a8b5e225f7.pnj)
+<img align="left" img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/2c24ecc3-e01f-42e8-b571-e0053766a874" />
+Hello, I am Chuuya, a teenager on the internet who probably shouldn't be online but thats whatever.. I enjoy bsd, if you couldn't tell. 
+I lack awareness or empathy so please be patient with me. (Autistic+Schizobpd).
+<img align="right" img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/104607ff-fffd-4b26-8279-f80712ab0046" />
 
-### HELLOOOOO EVERYYBODDYYYYY
- > I am Chuuya Nakahara, Devoure or Frozen...
-> I really like games. DNI: Chuuya doubles, FPE fans and DSMP fans who still support those nasty people. | I'm not picky abt my friends, i js want anyone with the same interests !! Bsd, Squidgame, SW64, Roblox, Minecraft, True Crime, Jayingee/Flamingo, Roblox Myths, ARGS, mandela catalogue, DHMS,, AND MORE!!feel free to ask abt mee!)))) | Cudding and or hiding is fine!!  :)
+━━━⊱༒︎ • ༒︎⊰━━━
+Chuuya means a lot to me, being one of the only characters I've been able to form an attachment to.. Besides 18zai & Beastzai.
+━━━⊱༒︎ • ༒︎⊰━━━
+ Please do not be a Chuuya Nakahara pony around me, as I am him irl.
 
-![](https://64.media.tumblr.com/2ac7a88871a3154f4d9782c5ee789869/32105e9cb3db7225-75/s2048x3072/bd9c2d376c60806d613176d4eef5e85b96d51f82.pnj)
-<img width="575" height="471" alt="image" src="https://github.com/user-attachments/assets/8e5f18dc-58a6-4ba3-9551-730c3daeed2c" />
-### LITERALLY MY BFFS 
-Angeredfish : Me
+And please, do not talk about kinning, yuming, or anything suggestive about him near me, it makes me EXTREMELY uncomfortable. Please respect this
+or expect a hard block and possibly some not-so-kind words. ( I am not actually as mean as this makes me sound, I am just protective :sob:) Im not actually THIS serious.. js for effect
+<img width="3000" height="120" alt="image" src="https://github.com/user-attachments/assets/47a90a05-2bc2-4ee6-8103-51aa79ac2651" />
 
-GoodPuffer : Shelly !! 
-
-J - ambar - D :  JADIII
-
-![](https://64.media.tumblr.com/2ac7a88871a3154f4d9782c5ee789869/32105e9cb3db7225-75/s2048x3072/bd9c2d376c60806d613176d4eef5e85b96d51f82.pnj)
+work in progresssss sdjbfjkdshfsdkAHHHHHH
