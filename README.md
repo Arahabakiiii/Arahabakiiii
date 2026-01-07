@@ -7,7 +7,7 @@ I lack awareness or empathy so please be patient with me. (Autistic+Schizobpd).
 
 
 Chuuya means a lot to me, being one of the only characters I've been able to form an attachment to.. Besides 18zai & Beastzai.
- Please do not be a Chuuya Nakahara pony around me, as I am him irl.
+ Please do not be a Chuuya Nakahara pony around me, as I am him.
 
 And please, do not talk about kinning, yuming, or anything suggestive about him near me, it makes me EXTREMELY uncomfortable. Please respect this
 or expect a hard block and possibly some not-so-kind words. ( I am not actually as mean as this makes me sound, I am just protective :sob:) Im not actually THIS serious.. js for effect
