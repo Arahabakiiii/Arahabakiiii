@@ -8,12 +8,12 @@
 
 <div align="center">
 
-<img width="2807" height="2049" alt="Untitled541_20260318213520" src="https://github.com/user-attachments/assets/294f73ab-7a45-49e5-8445-3735ea4f8c28">
+<img src="https://github.com/user-attachments/assets/294f73ab-7a45-49e5-8445-3735ea4f8c28" width="2807" height="2049">
 <img src="https://64.media.tumblr.com/5e6dcc3d99d047f7457c4713e45a12de/e4eccd3b03350099-51/s2048x3072/73e1c3f00e1e2a2e70c28f5c9389716bfdca6d07.pnj" width="800" alt="bottom lace">
 
 
 <br>
-<img width="400" height="986" align="left" alt="Untitled542_20260318214156" src="https://github.com/user-attachments/assets/ff3ae634-4707-4bb9-abc7-13fc7fd9f131">
+<img src="https://github.com/user-attachments/assets/ff3ae634-4707-4bb9-abc7-13fc7fd9f131" width="400" height="986" align="left>
 
 
 <br>
