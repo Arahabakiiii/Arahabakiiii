@@ -6,13 +6,15 @@ dni doubles ⑅ ཉ⠀iwec forsaken . Low tolerance for you people.⠀♡ 𓉸�
 
 <summary>Extra stuff</summary>
 
-### DNI CHUUYA DOUBLEs NO EXCEPTIONS.
+### DNI CHUUYA DOUBLES NO EXCEPTIONS.
 
 Please ASK to C+H when I am with friends, I might lash out on accident if unstated ok? ok
 
 ts pmo ill finish my new one soon lmfao..
 
 </details>
+
 ***
 ***
- [Credits](https://www.tumblr.com/musicmosaic)
+
+[Credits](https://www.tumblr.com/musicmosaic)
