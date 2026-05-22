@@ -11,7 +11,7 @@ dni doubles ⑅ ཉ⠀iwec forsaken . Low tolerance for you people.⠀♡ 𓉸�
 Please ASK to C+H when I am with friends, I might lash out on accident if unstated ok? ok
 
 ts pmo ill finish my new one soon lmfao..
-
+<img src="https://www.clipartmax.com/png/small/285-2854231_dumb-dragons-comics.png" alt="Dumb Dragons - Comics @clipartmax.com">
 </details>
 
 ***
