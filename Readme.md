@@ -1,20 +1,4 @@
 
 ![tumblr_540f71144adc943daf1139a60ee277b3_94aa15c8_2048](https://github.com/user-attachments/assets/0a5dde54-4ae7-4a12-bad0-f6a1c8cb8a17)
-(//✚ .  ^) ໒꒱⠀Carrd Soon ⠀꒱ྀིა⠀Rentry soon.⠀ ྐ✚
-dni doubles ⑅ ཉ⠀iwec forsaken . Low tolerance for you people.⠀♡ 𓉸ྀི ⠀fpe as well. 𓏼 𓏴 𓊇ྀི
-<details>
-
-<summary>Extra stuff</summary>
-
-### DNI CHUUYA DOUBLES NO EXCEPTIONS.
-
-Please ASK to C+H when I am with friends, I might lash out on accident if unstated ok? ok
-
-ts pmo ill finish my new one soon lmfao..
-<img src="https://www.clipartmax.com/png/small/285-2854231_dumb-dragons-comics.png" alt="Dumb Dragons - Comics @clipartmax.com">
-</details>
-
-***
-***
-
-[Credits](https://www.tumblr.com/musicmosaic)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Whisper&weight=10&letterSpacing=close&pause=1000&color=C00002&center=true&multiline=true&width=435&lines=%22Kiss+me+like+you+mean+goodbye%2C+%22;+said+the+spider+to+the+fly.)](https://git.io/typing-svg) [![Typing SVG](https://readme-typing-svg.demolab.com?font=Whisper&weight=10&letterSpacing=close&pause=1000&color=C00002&center=true&multiline=true&width=435&lines=All+those+times+you+thought+;that+you+were+wrong%2C+you+were+right!)](https://git.io/typing-svg)
+![divider](https://64.media.tumblr.com/bc19df572bdba6c0a03467db9f6af1af/d083df8da3513e0a-49/s2048x3072/54a69fec6c7ff89ff8031a69bb85da5a93690100.pnj)
