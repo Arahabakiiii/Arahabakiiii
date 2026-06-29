@@ -7,7 +7,7 @@
 <br/>
 <br/>
 <br/>
-  I am (name) and I also go by: Rikami . Kyu . Leviathan . Icarus . Ratio . Ripped . Osamu . Chuuya . Fyodor . Plus more, I know its a lot. I usually only go by two names at a time due to me having very often idenity crisis' <br/>
+  I am Syn and I also go by: Rikami . Kyu . Leviathan . Icarus . Ratio . Ripped . Osamu . Chuuya . Fyodor . Plus more, I know its a lot. I usually only go by two names at a time due to me having very often idenity crisis' <br/>
    I am a System. I am the host, my alters don't commonly play PT unless triggered. <br/>
   `Please do not trigger us, if we have DNUIF in our status it means **DO NOT INTERACT UNLESS FRIEND** Strangers arent our friends.`
   ![divider by kodaswrld on tumblr](https://64.media.tumblr.com/56e211df1a65ed50a1d5362777a3f497/6869b527f3370e87-08/s2048x3072/371995f384e5bfec68d518217b4d17e827bcd47b.pnj)
