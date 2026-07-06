@@ -2,7 +2,7 @@
 ![tumblr_540f71144adc943daf1139a60ee277b3_94aa15c8_2048](https://github.com/user-attachments/assets/0a5dde54-4ae7-4a12-bad0-f6a1c8cb8a17)
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Whisper&weight=10&letterSpacing=close&pause=1000&color=C00002&center=true&multiline=true&width=435&lines=%22Kiss+me+like+you+mean+goodbye%2C+%22;+said+the+spider+to+the+fly.)](https://git.io/typing-svg) 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Whisper&weight=10&letterSpacing=close&pause=1000&color=C00002&center=true&multiline=true&width=435&lines=All+those+times+you+thought+;that+you+were+wrong%2C+you+were+right!)](https://git.io/typing-svg) 
-<img align="right" width="100" src="https://64.media.tumblr.com/bcfdb7714a1f8a9a8cb6483c9270ca48/b35493199bf057ad-b6/s500x750/08cca660eabe08d36cdfef82bf698f5961a5c437.pnj" />
+<img align="right" width="100" src="https://64.media.tumblr.com/8c7669308cd43b69b96bd72c7a176cbf/a60c4a1fea7aca07-42/s75x75_c1/d5fbcb3c8c87fd8e1151a6db7fe0ab65120c592f.gifv" />
 
 ![divider](https://64.media.tumblr.com/bc19df572bdba6c0a03467db9f6af1af/d083df8da3513e0a-49/s2048x3072/54a69fec6c7ff89ff8031a69bb85da5a93690100.pnj)
 <br/>
