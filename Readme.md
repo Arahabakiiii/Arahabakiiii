@@ -14,6 +14,7 @@
   `Please do not trigger us, if we have DNUIF in our status it means **DO NOT INTERACT UNLESS FRIEND** Strangers arent our friends.`
   ![divider by kodaswrld on tumblr](https://64.media.tumblr.com/56e211df1a65ed50a1d5362777a3f497/6869b527f3370e87-08/s2048x3072/371995f384e5bfec68d518217b4d17e827bcd47b.pnj)
 <br/>
+<img align="right" width="480" src="https://64.media.tumblr.com/dc76ad8cb6f9ef4ac83bd651d67b640e/47bc5e5cf521f34a-56/s500x750/1440735f731dc666756730c64f4f9f5bfbbc892a.gifv" />
   List of tonetags we use: <br/>
   DNI   **DO NOT INTERACT** <br/>
   IWEC **INTERACT WITH EXTREME CAUTION** <br/>
