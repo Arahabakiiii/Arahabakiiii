@@ -20,13 +20,13 @@
    
 <img align="right" width="480" src="https://64.media.tumblr.com/dc76ad8cb6f9ef4ac83bd651d67b640e/47bc5e5cf521f34a-56/s500x750/1440735f731dc666756730c64f4f9f5bfbbc892a.gifv" />
   List of tonetags we use: <br/>
-  DNI   **DO NOT INTERACT** <br/>
-  IWEC **INTERACT WITH EXTREME CAUTION** <br/>
-  IWC **INTERACT WITH CAUTION** <br/>
-  IWECARE **INTERACT WITH EXTREME CARE** <br/>
-  IWCARE **INTERACT WITH CARE** <br/>
-  DNIUF **DO NOT INTERACT UNLESS FRIENDS** <br/>
-  C+H **CUDDLE + HIDE** <br/>
+  DNI  : DO NOT INTERACT <br/>
+  IWEC : INTERACT WITH EXTREME CAUTION <br/>
+  IWC : INTERACT WITH CAUTION <br/>
+  IWECARE : INTERACT WITH EXTREME CARE <br/>
+  IWCARE : INTERACT WITH CARE <br/>
+  DNIUF : DO NOT INTERACT UNLESS FRIENDS <br/>
+  C+H : CUDDLE + HIDE <br/>
   <br/>
   
    ![divider by kodaswrld on tumblr](https://64.media.tumblr.com/e72d6b94a8a74db8c6c65c3b3ee027df/6869b527f3370e87-15/s2048x3072/f2941d552ddbd11998bf5d8db98862427b32a68b.pnj)
